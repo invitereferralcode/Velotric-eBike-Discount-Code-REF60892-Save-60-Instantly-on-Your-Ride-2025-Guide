@@ -1,4 +1,5 @@
-## 🧾 Overview
+## Velotric eBike Discount Code REF60892 Save 60 Instantly on Your Ride 2025 Guide
+
 
 Looking to upgrade your commute, ride in style, and save money? Use **Velotric promo code `REF60892`** to instantly get **$60 off** your next eBike purchase. This guide walks you through everything you need to know—from how to redeem the code to what makes Velotric one of the top electric bike brands in 2025.
 
